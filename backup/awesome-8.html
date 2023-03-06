@@ -1,0 +1,1 @@
+prevention is better than cure
